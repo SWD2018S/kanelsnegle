@@ -1,5 +1,20 @@
 # Kanelsnegle
 
-Gærdej Gæren smuldres i en stor skål og blandes med æg, vanilje, kanel, kardemomme, ingefær og rørsukker. Lun sødmælken og bland den sammen med salt. Bland lidt mel med og tilsæt smørret. Tilsæt mere mel og ælt det hele til en glat og smidig dej. Ælt dejen op til en stor kugle, der lægges i mel på bordet. Når dejen har hvilet ca. 15 minutter, udrulles den i et kvadrat på ca. 50 X 40 cm. Når du ruller dejen ud, skal du sørge for at begrænse mængden af mel. Børst også overflødigt mel væk fra dejen, når du er færdig med udrulningen.
+Sådan gør du (90 minutter):
 
-Remoncen Rør smørret godt med rørsukker og stødt kanel. Man kan eventuelt piske med en håndmikser. Stryg remoncen ud over hele dejen med en palet og rul dejen sammen som en roulade på den smalle led. Smør lave aluminiumsforme ca. 6 cm i diameter med neutral olie. Skær rouladen i 1½ cm. tykke skiver. Læg dem straks i de smurte forme. Sneglene skal nu hæve på en bageplade et dejligt lunt sted, til de er hævet til næsten dobbelt størrelse - det tager minimum 35 minutter, afhængigt af rummets temperatur. Pensl kanelsneglene med sammenpiskede æggeblommer. Bages ved 185 grader, til de er let gyldne, ca. 15 - 18 minutter.
+1. Lun mælken og opløs gæren heri. Gæren må ikke varmes med. Tilsæt melet og de øvrige ingredienser. Ælt til dejen er glat og ensartet. 
+
+2. Lad dejen hæve, tildækket og lunt, til dobbelt størrelse. 
+
+3. Del dejen i 2 lige store dele og rul dem ud til 2 firkanter (ca. 30 x 30 cm). Fordel remoncen over hele fladen og drys med kanel. Rul pladerne sammen til en roulade og skær hver roulade ud i 12 lige store stykker. 
+
+4. Sæt sneglene på en bageplade med bagepapir og tryk dem flade. 
+
+5. Lad sneglene efterhæve, tildækket og lunt, ca. 20 min., mens ovnen forvarmes. 
+
+6. Pensl med sammenpisket æg. 
+
+Bagetid: 
+Ca. 8 min. i en forvarmet ovn ved 220° C (varmluft 220° C) på ovnens midterste rille. 
+
+Efter afkøling pyntes sneglene med glasur.
