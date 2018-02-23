@@ -14,7 +14,7 @@ Sødmælk
 Salt
 Smør
 
-Bageprocess
+Bageprocess:
 
 Gærdej Gæren smuldres i en stor skål og blandes med æg, vanilje, kanel, kardemomme, ingefær og rørsukker.
 Lun sødmælken og bland den sammen med salt. Bland lidt mel med og tilsæt smørret.
