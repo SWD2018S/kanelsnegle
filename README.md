@@ -6,4 +6,4 @@ Gæren smuldres i en stor skål og blandes med æg, vanilje, kanel, kardemomme, 
 Remoncen 
 Rør smørret godt med rørsukker og stødt kanel. Man kan eventuelt piske med en håndmikser. Stryg remoncen ud over hele dejen med en palet og rul dejen sammen som en roulade på den smalle led. Smør lave aluminiumsforme ca. 6 cm i diameter med neutral olie. Skær rouladen i 1½ cm. tykke skiver. Læg dem straks i de smurte forme. Sneglene skal nu hæve på en bageplade et dejligt lunt sted, til de er hævet til næsten dobbelt størrelse - det tager minimum 35 minutter, afhængigt af rummets temperatur. Pensl kanelsneglene med sammenpiskede æggeblommer. Bages ved 185 grader, til de er let gyldne, ca. 15 - 18 minutter. 
 
-RIGTIG GOD OPSKRIFT. 
+RIGTIG GOD OPSKRIFT 10/10.
